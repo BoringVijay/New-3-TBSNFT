@@ -12,7 +12,7 @@ To find out more please visit:
 
 [🐦 Twitter](https://twitter.com/thestripesnft)
 
-[ℹ️ Website](https://thestripesnft.com/)
+[ℹ️ Website](https://theboringstones.com/)
 
 # The Stripes NFT minting dapp 🔥
 
